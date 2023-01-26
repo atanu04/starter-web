@@ -10,3 +10,6 @@ sdfbkjdhfsvgj vkjhskufhxdrjs svbdjubhsvgj bjdeswhkjhdvfs
 
 
 thisdb dsbgvds sdgsn 
+
+##copyright
+copyright
